@@ -1,0 +1,1 @@
+# Wind_Solar_Resource_Detailed_Specification_team16
